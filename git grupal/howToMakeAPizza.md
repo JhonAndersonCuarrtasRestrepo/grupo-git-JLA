@@ -2,4 +2,4 @@
 
 2. Luego se agrega la levadura a la masa.
 
-3. Despues se agrega 2 cucharadas de aceite y se sigue mezclando durante 2 minutos.
+3. Despues se agrega 2 cucharadas de aceite y se sigue mezclando durante 3 minutos.
